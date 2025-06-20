@@ -12,4 +12,9 @@ No ads, games that promise to make you soil your grubby pants, bitcoin wallets, 
 ### Pip install yt-dlp
 ### FFMpeg if you want mp3 else you'll get m4a/webm audio
 
+
 GLHF <3 Lannie
+
+If you take pity upon me and the wrathful dumpster I writhe in feel free to throw a coin at my head.
+
+https://ko-fi.com/lanniekins
